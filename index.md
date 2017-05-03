@@ -1,6 +1,6 @@
 Hi, this is my personal homepage.
 
-I am a Senior Java Developer with +15 years experience in software development covering the full SDLC from functional analysis to maintenance. 
+I am a Senior Java Developer with +15 years experience in software development covering the full SDLC from functional analysis to software maintenance including user training.
 
 I am available for remote work from Oviedo, in the North of Spain.
 
