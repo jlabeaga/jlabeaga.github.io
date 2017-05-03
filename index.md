@@ -7,8 +7,8 @@ I am available for remote work from Oviedo, in the North of Spain.
 
 You can know more about me at:
 
-Online CV: https://es.linkedin.com/in/jlabeaga
-Email: jlabeaga at hotmail dot com
+- Online CV: https://es.linkedin.com/in/jlabeaga
+- Email: jlabeaga at hotmail dot com
 
 
 
